@@ -5,9 +5,17 @@ my Digital Homework
 
 ## The river project
 
-The baby glides down from the source into a stream through the V-shaped valley,
+The baby glides down from the source,
 
-down a tributree rocked to the outside of a meander,
+into a stream,
+
+through the V-shaped valley,
+
+down a tributree,
+
+rocked to the outside of a meander,
+
+down a waterfall,
 
 gets covered in seawead,
 
